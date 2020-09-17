@@ -1,2 +1,2 @@
 # SATVIK-G-S
-BUZZING EXPLORER
+Newbie! 
